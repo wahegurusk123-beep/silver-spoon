@@ -138,4 +138,19 @@ Realization: Lasting happiness comes from making oneself and others happy.
 
 
 
+📅 Day 4 (4 August 2025)
+
+First chemistry lecture: learned basic engineering concepts and got motivated to improve our skills.
+
+Advised to create a LinkedIn profile for professional networking.
+
+Peer-to-peer session with seniors: learned C++ basics, explored clubs, activities, and exams.
+
+Expert lecture by Dr. Priya Darshni: inspiring talk on learning from experience and doing things genuinely, not for fame or show-off.
+
+
+
+
+
+
  
