@@ -75,7 +75,7 @@ of →No substitute hard work.
  3:00 to 4:30 PM class
 
 
- # 🌟 Day 2 Highlights – Date: [Enter Date Here]
+ # 🌟 Day 2 – Date: (1 August 2025)
 
 ## 🕘 9:30 AM - 10:30 AM: English Proficiency Test  
 - Participated in the English Proficiency Test  
@@ -110,7 +110,7 @@ of →No substitute hard work.
 - Scholarship opportunities  
 - GitHub basics and markdown writing
 
-- On Day 3 of the induction program (2 August 2025).
+## On Day 3 of the induction program (2 August 2025).
 
 Dr. Jaswinder Singh Sir gave a unique and memorable session:
 
@@ -138,7 +138,7 @@ Realization: Lasting happiness comes from making oneself and others happy.
 
 
 
-📅 Day 4 (4 August 2025)
+## Day 4 (4 August 2025)
 
 First chemistry lecture: learned basic engineering concepts and got motivated to improve our skills.
 
@@ -149,7 +149,7 @@ Peer-to-peer session with seniors: learned C++ basics, explored clubs, activitie
 Expert lecture by Dr. Priya Darshni: inspiring talk on learning from experience and doing things genuinely, not for fame or show-off.
 
 
-It was the 5th day of college (6 August 2025).
+## Day 5  (6 August 2025).
 
 The day began with the second lecture of BEEE (Basic Electrical and Electronics Engineering).
 
@@ -168,6 +168,42 @@ Arvind Dhingra Sir conducted a fun-filled, energetic session.
 
 Overall, it was an inspiring and interactive day that left a strong impression.
 
+
+
+## Day 6 (7 August 2025)
+
+Session by Parminder Sir (Student Welfare Department)
+
+Spoke about making the most of our four years by:
+
+Enjoying the journey
+
+Focusing on our goals
+
+Working on our limitations
+
+
+Introduced various college facilities and student clubs
+
+
+Talk by Amit Kamra Sir (Digital Marketing Club)
+
+Shared how the club was formed
+
+Explained how students can join
+
+Discussed GNE’s growth in the field of digital marketing with student involvement
+
+Announced a competition for making reels and videos on the GNE induction program
+
+
+Session by Randhir Sir
+
+Explained exam conductance
+
+Covered structure and rules
+
+Helped students understand how academics are managed
 
 
 
