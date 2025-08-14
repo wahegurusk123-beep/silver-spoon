@@ -110,7 +110,32 @@ of →No substitute hard work.
 - Scholarship opportunities  
 - GitHub basics and markdown writing
 
-- 
+- On Day 3 of the induction program (2 August 2025).
+
+Dr. Jaswinder Singh Sir gave a unique and memorable session:
+
+Blended mathematics with spirituality and God.
+
+Spoke not just to the mind, but to the heart.
+
+Striking message: "Close your eyes and see with your inner vision, close your ears and listen with your inner ears."
+
+
+Chief Guest S. Gurucharan Singh Grewal Sir:
+
+Motivated the audience with inspiring words.
+
+Shared the 70-year legacy of the college.
+
+
+Dr. Priya Darshni Ma’am:
+
+Introduced a subject to connect with one’s soul and body.
+
+Encouraged self-discovery and understanding true happiness.
+
+Realization: Lasting happiness comes from making oneself and others happy.
+
 
 
  
