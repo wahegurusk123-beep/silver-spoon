@@ -149,6 +149,29 @@ Peer-to-peer session with seniors: learned C++ basics, explored clubs, activitie
 Expert lecture by Dr. Priya Darshni: inspiring talk on learning from experience and doing things genuinely, not for fame or show-off.
 
 
+It was the 5th day of college (6 August 2025).
+
+The day began with the second lecture of BEEE (Basic Electrical and Electronics Engineering).
+
+After that, there was a Peer-to-Peer (P2P) session with seniors — it felt helpful, friendly, and supportive.
+
+Post-break, Lakhvir Singh Khanna Sir introduced students to CML (Centre for Multifaceted Learning).
+
+CML helps students build important life skills like communication and technology-related skills.
+
+It made the writer realize that college is not only about academics but also about personal growth.
+
+
+Students were also introduced to the SWAYAM portal, which offers many learning opportunities.
+
+Arvind Dhingra Sir conducted a fun-filled, energetic session.
+
+Overall, it was an inspiring and interactive day that left a strong impression.
+
+
+
+
+
 
 
 
